@@ -1,1 +1,0 @@
-# nathasyaad.github.io
